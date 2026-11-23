@@ -1,2 +1,0 @@
-# ypriyal.github.io
-Portfolio
